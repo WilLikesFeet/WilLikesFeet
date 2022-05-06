@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @WilLikesFeet
+- 👀 I’m interested in feet
+- 💞️ I’m looking to collaborate on feet pics
+- 📫 Dm me feet pics<3
